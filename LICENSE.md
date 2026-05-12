@@ -1,4 +1,4 @@
-#  
+#  Experience rivals like never before with professional rivals Script, the #1 Script. Includes speed and auto-sell for unbeatable performance.
 
 
 
